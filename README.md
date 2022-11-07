@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alexandrapaiz
-- 👀 I’m interested in a lot of things. Right now, my obsessions are finance, technology, music, philosophy and theology! 
+- 👀 I’m interested in a lot of things. My current obsessions are finance, tech, music, philosophy and theology! 
 - 🌱 I’m currently learning about Fintech!
 - 💞️ I’m looking to collaborate on creative projects!
 - 📫 How to reach me: alexandrapaizdelgado@gmail.com
